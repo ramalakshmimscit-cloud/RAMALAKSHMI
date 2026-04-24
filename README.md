@@ -23,4 +23,4 @@
 
 ### 📫 Let's Connect!
 - **Email:** ramalakshmimscit@gmail.com
-- **LinkedIn:** [://linkedin.com](https://www.://linkedin.com-a3a198398/)
+- **LinkedIn:** https://www.linkedin.com/in/rama-lakshmi-n-a3a198398/
